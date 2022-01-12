@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NagaraAndrei
+- 👀 I’m interested in generative art, vr, ar, xr, meta, nft
+- 💞️ I’m looking to collaborate on nft art
