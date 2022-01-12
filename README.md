@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @NagaraAndrei
+- 👋 Hi, I’m @Money4dust
 - 👀 I’m interested in generative art, vr, ar, xr, meta, nft
 - 💞️ I’m looking to collaborate on nft art
